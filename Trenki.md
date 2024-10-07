@@ -1,3 +1,0 @@
-# du bischt erbährmlich
-
-wasserglass
